@@ -18,3 +18,4 @@
 * [전법 번역](https://docs.google.com/spreadsheets/d/177EsZmoxShGiROVeCpnh4DuWHDRgKb4pUoMENCuBQ3U/edit#gid=843521125)
 * [오버레이 정보 모음집](https://docs.google.com/spreadsheets/d/177EsZmoxShGiROVeCpnh4DuWHDRgKb4pUoMENCuBQ3U/edit?usp=sharing)
 
+* [시즌별 정보 모음집](https://pan.baidu.com/s/1IxAuNQDQW6r6HWfE5t7Pgw?pwd=qspk)
